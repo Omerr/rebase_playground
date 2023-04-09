@@ -25,3 +25,19 @@ Lucy in the sky with diamonds
 Lucy in the sky with diamonds
 Lucy in the sky with diamonds
 Ah
+
+Picture yourself on a train in a station
+With plasticine porters with looking glass ties
+Suddenly someone is there at the turnstile
+The girl with the kaleidoscope eyes
+Lucy in the sky with diamonds
+Lucy in the sky with diamonds
+Lucy in the sky with diamonds
+Ah
+Lucy in the sky with diamonds
+Lucy in the sky with diamonds
+Lucy in the sky with diamonds
+Ah
+Lucy in the sky with diamonds
+Lucy in the sky with diamonds
+Lucy in the sky with diamonds
