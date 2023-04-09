@@ -27,3 +27,15 @@ A pretty nurse is selling poppies from a tray
 And though she feels as if she's in a play
 She is anyway
 
+Penny Lane, the barber shaves another customer
+We see the banker sitting waiting for a trim
+And then, the fireman rushes in from the pouring rain
+Very strange
+
+Penny Lane is in my ears and in my eyes
+There beneath the blue suburban skies
+I sit and meanwhile back
+
+Penny Lane is in my ears and in my eyes
+There beneath the blue suburban skies
+Penny Lane
