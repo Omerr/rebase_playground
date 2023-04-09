@@ -12,3 +12,18 @@ Very strange
 Penny Lane is in my ears and in my eyes
 Wet beneath the blue suburban skies
 I sit and meanwhile back in
+
+Penny Lane, there is a fireman with an hourglass
+And in his pocket is a portrait of the Queen
+He likes to keep his fire engine clean
+It's a clean machine
+
+Penny Lane, is in my ears and in my eyes
+A four of fish and finger pies
+In summer, meanwhile back
+
+Behind the shelter in the middle of a roundabout
+A pretty nurse is selling poppies from a tray
+And though she feels as if she's in a play
+She is anyway
+
